@@ -1,0 +1,1 @@
+Espero que este archivo lo encuentres util y que te sirva para algo y lo uses sin errores puedes modificarlo como te paresca mejor a ti segun tus necesidades o como creas mejor estoy aprendeiendo a programar tengo 15 haci que me gustaria que me apoyaras
